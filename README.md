@@ -1,1 +1,0 @@
-# sisinfo_pegawai
